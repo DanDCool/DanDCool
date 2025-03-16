@@ -1,5 +1,7 @@
 ## Hi there 👋
-
+- i have many goals and i also have 0 determination to go after them...
+- my only talents rn are that i play the piano and my english is half decent. and thats it :|
+- id like to learn game development, animation, 3D modeling, digital art, music composition, learn to play Electric Guitars, photography, etc................
 <!--
 **DanDCool/DanDCool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
